@@ -10,4 +10,4 @@
 
 
 
-<a href="http://wa.me/5219996125657" target="blank"><img 
+<a href="http://wa.me/573152139466" target="blank"><img src="https://img.shields.io/badge/Whatsapp-30302f?style=flat&logo=whatsapp" /></a>
