@@ -4,7 +4,7 @@
  
  ༒☬༒ ᴍɪ ᴄᴀɴᴀʟ ᴅᴇ ʏᴏᴜᴛᴜʙᴇ   ༒☬༒
  
- <a href="https://www.youtube.com/channel/UCN9wxOL23R-6hA2XgupyWZQ"><img height="30" src="https://www.pngplay.com/es/?p=173650?raw=true"></a>&nbsp;&nbsp;
+ <a href="https://www.youtube.com/channel/UCN9wxOL23R-6hA2XgupyWZQ"><img height="30" src="https://logodownload.org/wp-content/uploads/2014/10/youtube-logo-9.png"></a>&nbsp;&nbsp;
 > Dar click en la imagen para redireccionarlos a YouTube
  
  
